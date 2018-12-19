@@ -1,2 +1,1 @@
-Divas works hard and smart
-Thats True 
+Divas reallly works hard and smart
